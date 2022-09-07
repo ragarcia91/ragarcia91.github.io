@@ -8,5 +8,3 @@ eu tinha esquecido de falar o que eu queria
 ## Existe um arquivo com a lista de linguagens que programo
 
 As minhas experimentacoes
-
-kdashfkjshglsfklfkklsdsfio13jlk21kj123
